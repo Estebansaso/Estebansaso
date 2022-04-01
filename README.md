@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Estebansaso
-- 👀 I’m interested in  programar
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning programacion
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me estebansanchezsoto916@gmail.com
